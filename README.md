@@ -12,6 +12,5 @@ Gmail: joaoextremo8345@gmail.com
 
 Instagram: johnzin_bmo
 
-![](https://tenor.com/bTNY8.gif
-)
+![](https://tenor.com/cva1i1Mjp8m.gif)
 
